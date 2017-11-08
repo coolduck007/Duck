@@ -1,1 +1,1 @@
-# Duck
+# Duck Hub's hangout zone
